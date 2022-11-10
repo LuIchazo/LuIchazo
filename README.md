@@ -18,3 +18,8 @@
 - Lo que espero de mi carrera es poder concluirla con exito.✨🎉
 
 ![DividerGIF](https://user-images.githubusercontent.com/110863780/183537039-48fe8b44-1d14-434f-8f55-747606ca9481.gif)
+
+
+https://github.com/SIS-111-Introduccion-a-la-Programacion/Software/tree/main/BoletadePago
+https://github.com/SIS-111-Introduccion-a-la-Programacion/Software/tree/main/Facturacion
+https://github.com/SIS-111-Introduccion-a-la-Programacion/Software/tree/main/ahorcado
