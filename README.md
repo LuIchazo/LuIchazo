@@ -2,7 +2,7 @@
 ![HelloDinosallyGIF](https://user-images.githubusercontent.com/110863780/183535312-193f0204-1237-4c57-9308-4ed9745d911f.gif)
 
 #### Algunas cosas sobre mi:
-- Naci el 30 de enero de 2004, tengo 18 años. 🧒🏻🙋🏻‍♀️
+- Naci el 30 de enero de 2004, tengo 20 años. 🧒🏻🙋🏻‍♀️
 - Estudie en el colegio La Salle Particular. 🎓📚
 
 ![GreenHeartGreenGIF](https://user-images.githubusercontent.com/110863780/183535561-7d8a6df6-95b2-425f-8b05-d19e68cde39e.gif)
